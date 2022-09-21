@@ -1,0 +1,4 @@
+- Hello.
+- Name is Jonathan.
+- I believe myself to be the dumbest person in a group.
+- Now leave me alone. 😐
